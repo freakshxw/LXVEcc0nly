@@ -1,5 +1,7 @@
- # . Hi, There❗
-### . I’m C.C./Carson.
+ # . **Hi, There ❗**
+### . **I’m C.C./Carson.**
+           ★
+
 - 👀 *I’m interested in Playing Games and more*
 - 🌱 **I’m currently learning Russian Lesson 🇷🇺**
 - 💞️ *I’m looking to collaborate on Creating Games 🎮* 
