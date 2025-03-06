@@ -8,6 +8,7 @@
 - 📫 **How to reach me simply saying "Hi 👋 Wanna be friends?"**
 - 😄 *Pronouns: She/Her 👼*
 - ⚡ **Fun fact:My birthday was on 12/12 (December 12) And my favorite number is 12!**
+- 🎮 **discord:** *evaneee. (with a dot)*
 
 <!---
 LXVEcc0nly/LXVEcc0nly is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
