@@ -15,7 +15,7 @@
 
 🎮       .ㅤ☆★   ㅤ **discord:** *ccevann* , **tt:** *_raychel_* , **spacehey:** *evanee* 
 
-🎀       .ㅤ★☆   ㅤ *C+H:*only friends or close friends can*, W2I: Anybody!, No strangers touching faces please.* [Taken]
+🎀       .ㅤ★☆   ㅤ *C+H:*only friends or close friends can*, W2I: Anybody!, No strangers touching faces please. And correct, I may not be nice to strangers, but if you do compliment my cos, I'll appreciate it! and like you more ^^, but you don't have to do it, not forcing. Stay safe everybody!*
 <!---
 LXVEcc0nly/LXVEcc0nly is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
