@@ -15,7 +15,7 @@
 
 🎮       .ㅤ☆★   ㅤ **discord:** *ccevann* , **tt:** *_raychel_* , **spacehey:** *evanee* 
 
-🎀       .ㅤ★☆   ㅤ *C+H:*only friends can*, W2I: no. talk public or party, talk to me before booping me. please. Stay safe everybody!*
+🎀       .ㅤ★☆   ㅤ *C+H:*only friends can*, W2I: no. talk public or party, talk to me before booping me. Also don't show affection like love expressions, "I love you", or smth similar to dating, I don't know you, or If I do, then please stop. Stay safe everybody!*
 <!---
 LXVEcc0nly/LXVEcc0nly is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
