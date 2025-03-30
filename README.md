@@ -22,8 +22,8 @@ ppl who draw kids n@ked
 **weird people**
 freaky people
 **toxic people**
-**attention seeker**
-immature
+attention seeker
+**immature**
  # . **INTERACT IF UR ONE OF THESE** *!*
 **kind people**
 loyal (if u wanna be friends)
