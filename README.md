@@ -24,7 +24,7 @@ freaky people
 **toxic people**
 attention seeker
 **immature**
- # . **INTERACT IF UR ONE OF THESE** *!*
+ # . **INT IF UR ONE OF THESE** *!*
 **kind people**
 loyal (if u wanna be friends)
 **mature**
