@@ -13,7 +13,7 @@
 
 ⚡       .ㅤ★☆   ㅤ **Fun fact:My birthday was on 12/12 (December 12) And my favorite number is 12!**
 
-🎮       .ㅤ☆★   ㅤ **discord:** *.ccafton.* , **tt:** *_raychel_* , **spacehey:** *evanee* 
+🎮       .ㅤ☆★   ㅤ **discord:** *.ccafton.* , **tt:** *_ raychel _* , **spacehey:** *evanee* 
 
 🎀       .ㅤ★☆   ㅤ *C+H:*only friends can*, W2I: no. talk public or party, talk to me before booping me. Also don't show affection like love expressions, "I love you", or smth similar to dating, I don't know you, or If I do, then please stop. Stay safe everybody!*
  # . **DNI IF UR ONE OF THESE** *!*
