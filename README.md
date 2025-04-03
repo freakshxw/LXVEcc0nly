@@ -24,6 +24,7 @@ freaky people
 **toxic people**
 attention seeker
 **immature**
+copy skins (get blocked permanently)
  # . **INT IF UR ONE OF THESE** *!*
 **kind people**
 loyal (if u wanna be friends)
